@@ -1,0 +1,1 @@
+# fastermind.github.io
